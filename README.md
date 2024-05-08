@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...wef
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...asda
+- ⚡ Fun fact: ...as
 
 <!---
 soodyOriginal/soodyOriginal is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
