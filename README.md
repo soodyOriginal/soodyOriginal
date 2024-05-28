@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...!!
 - 💞️ I’m looking to collaborate on ...!!adw
 - 📫 How to reach me ...ö
-- 😄 Pronouns: ...he
+- 😄 Pronouns: ...heqs
 - ⚡ Fun fact: ...!
 ad!!
 <!---ad
