@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...131
 - 🌱 I’m currently learning ...!!1
 - 💞️ I’m looking to collaborate on ...!!adwasd
-- 📫 How to reach me ...ö!daud it
+- 📫 How to reach me ...ö!daud it!
 - 😄 Pronouns: ...heqs!!2 days left
 - ⚡ Fun fact: ...!
 ad!!!!1234
