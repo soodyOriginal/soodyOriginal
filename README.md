@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @soodyOriginal11
 - 👀 I’m interested in ...131xsd
-- 🌱 I’m currently learning ...!!11
+- 🌱 I’m currently learning ...!!11sdfsdfv
 - 💞️ I’m looking to collaborate on ...!!adwasd1111111
 - 📫 How to reach me ...ö!daud it!1ge
 - 😄 Pronouns: ...heqs!!2 days left1v1
