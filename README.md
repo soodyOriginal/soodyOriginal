@@ -7,6 +7,6 @@
 - ⚡ Fun fact: ...!41adws
 ad!!!!1234hh
 <!---ad
-soodyOriginal/soodyOriginal is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+soodyOriginal/soodyOriginal is a ✨ special ✨ repository because its `README.md` (thwsqs file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
