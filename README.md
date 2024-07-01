@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...!!adwasd1111111asd
 - 📫 How to reach me ...ö!daud it!1geqdea
 - 😄 Pronouns: ...heqs!!2 days left1v1hv
-- ⚡ Fun fact: ...!41adws
+- ⚡ Fun fact: ...!41adwsadw
 ad!!!!1234hh
 <!---ad
 soodyOriginal/soodyOriginal is a ✨ special ✨ repository because its `README.md` (thwsqs file) appears on your GitHub profile.
