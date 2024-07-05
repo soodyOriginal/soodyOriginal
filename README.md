@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...!!11sdfsdfvhghbaaa
 - 💞️ I’m looking to collaborate on ...!!adwasd1111111asdASD
 - 📫 How to reach me ...ö!daud it!1geqdeawd
-- 😄 Pronouns: ...heqs!!2 days left1v1hv
+- 😄 Pronouns: ...heqs!!2 days left1v1hvadw
 - ⚡ Fun fact: ...!41adwsadwa
 ad!!!!1234hh
 <!---ad
