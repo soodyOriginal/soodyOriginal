@@ -5,7 +5,7 @@
 - 📫 How to reach me ...ö!daud it!
 - 😄 Pronouns: ...heqs!!2 days  
 - ⚡ Fun fact: ...!
-ad!!!!1234hhqdw
+ad!!!!
 <!---ad1
 soodyOriginal/soodyOriginal is a ✨ special ✨ repository because its `README.md` (thwsqs file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
