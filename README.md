@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @soodyOriginal11
 - 👀 I’m interested in ...131xsddwa
 - 🌱 I’m currently learning ...!!
-- 💞️ I’m looking to collaborate on ...!!51
+- 💞️ I’m looking to collaborate on ...!!51ad
 - 📫 How to reach me ...ö!daud it!fweewf
 - 😄 Pronouns: ...heqs!!2 daysqqqvrefc
 - ⚡ Fun fact: ...!wda
