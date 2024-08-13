@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @soodyOriginal11
 - 👀 I’m interested in ...131xsddwa
 - 🌱 I’m currently learning ...!!daw
-- 📫 How to reach me ...ö!daud it!fweewfqwd
+- 📫 How to reach me ...ö!daud it!
 - 😄 Pronouns: ...heqs!!2 daysqqqvrefcdwa
 - ⚡ Fun fact: ...!wda
 ad1111q
