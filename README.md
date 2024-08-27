@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...131xsddwa
 - 🌱 I’m currently learning ...!!daw
 - 📫 How to reach me ...ö!daud it!awdwad11
-- 😄 Pronouns: ...heqs!!2 daysqqqvrefcdwaw
+- 😄 Pronouns: ...heqs!!2 daysqqqvrefcdwaw1
 - ⚡ Fun fact: ...!wdaadw11
 ad1111q1
 <!---ad1
