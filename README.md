@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...!!daw
 - 📫 How to reach me ...ö!daud it!awdwad1111
 - 😄 Pronouns: ...heqs!!2 daysqqqvrefcdwaw11
-- ⚡ Fun fact: ...!wdaadw11
+- ⚡ Fun fact: ...!wdaadw111
 ad1111q11
 <!---ad1
 soodyOriginal/soodyOriginal is a ✨ special ✨ repository because its `README.md` (thwsqs file) appears on your GitHub profile.
