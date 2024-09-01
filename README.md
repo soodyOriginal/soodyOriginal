@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @soodyOriginal111
+- 👋 Hi, I’m @soodyOriginal
 - 👀 I’m interested in ...131xsddwa
 - 🌱 I’m currently learning ...!!daw
 - 📫 How to reach me ...ö!daud it!awdwad1111
