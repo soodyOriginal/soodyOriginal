@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @soodyOriginal
-- 👀 I’m interested in ...131xsddwa
+- 👀 I’m interested in ...131xsddwag
 - 🌱 I’m currently learning ...!!daw1w
 - 📫 How to reach me ...ö!daud it!awdwad11111w
 - 😄 Pronouns: ...heqs!!2 daysqqqvrefcdwaw11
